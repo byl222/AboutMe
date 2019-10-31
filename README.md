@@ -15,7 +15,7 @@ President of Hacky Sack Club
 
 EXPERIENCE
 
-Rakkii Ramen LLC, Bethlehem, PA —  Co-founder                                                   December 2018 - Present
+Rakkii Ramen LLC, Bethlehem, PA —  Co-founder                                                 December 2018 - Present
 Held a managing position with 15 employees
 Overlook and support franchise locations, assist company expansion team, design company website, handle customer service, interview candidates to join our team.  
 Entrepreneurial and management skills
